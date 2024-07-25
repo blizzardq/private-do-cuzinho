@@ -1,2 +1,2 @@
 # private-do-breninho
-rsrs usem com sabedopika
+n me responsabilizo pela criatura q se tornará
